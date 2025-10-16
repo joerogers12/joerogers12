@@ -12,6 +12,6 @@ Currently working on:
 
 Goal: Contribute to teams solving real-world problems through thoughtful design, customer focus, and ingenuity
 
-Open to internships and software roles where I can grow, learn, and make meaningful contributions
+Open to internships and full time software roles in 2026 where I can grow, learn, and make meaningful contributions
 
 Let's Connect: [LinkedIn](https://www.linkedin.com/in/joerogers212/)
