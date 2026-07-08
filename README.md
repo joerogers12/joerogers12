@@ -1,4 +1,4 @@
-## Hi, I’m Joe — a former farmer and current Software Engineer
+## Hi, I’m Joe — a former farmer and current software engineer
 
 Studied Software Engineering and Mechanical Engineering @ UC Irvine (B.S.)
 
